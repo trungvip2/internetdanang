@@ -38,3 +38,4 @@ Quý khách hàng và Doanh Nghiệp đăng ký gói Combo Internet và Truyền
 
 Liên hệ trực tiếp theo số Hotline : 0905 22 69 77
 Quý khách hàng nên thường xuyên truy cập vào website http://internetviettel-danang.net/ để cập nhận các chương trình khuyến mãi mới nhất.
+Xem thêm truyền hình vtvcab Đà Nẵng : http://vtvcabdanang.com/
